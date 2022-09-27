@@ -1,4 +1,4 @@
 # Daniel Melo
 
 ## My Style
-* I am a nice guy who likes to live life slowly.
+* I am a nice guy who likes to live life slowly. New things added
