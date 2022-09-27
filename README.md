@@ -11,3 +11,7 @@
 
 ## How best to communicate with me
 * Face to face conversations works best for me, but if it's something I need to remember I need to take notes because I have a bad memory.
+
+## How I make decisions
+## What people misunderstand about me
+## How to help me
