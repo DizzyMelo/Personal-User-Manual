@@ -20,7 +20,7 @@
 
 ## How I make decisions
 * I will try to consider ups and downs of each option and try to find out which fits best
-* I value others opinios, specially from those who have previous experience on the subject.
+* I value others' opinions, specially from those who have previous experience on the subject.
 * I make my research to be well informed about the topic, but I also consider my intuition.
 ## What people misunderstand about me
 * I love sharing things I find interesting. I am not trying to look like the smart guy in the room.
@@ -28,4 +28,4 @@
 
 ## How to help me
 * It's hard for me to put into words what is my head, don't be afraid to ask me to explain again what I'm trying to say.
-* I tend to avoid asking for help, if it seems like I need help, please offer it, I'll probaply accept.
+* I tend to avoid asking for help, if it seems like I need help, please offer it, I'll probably accept.
