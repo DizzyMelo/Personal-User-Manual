@@ -28,3 +28,4 @@
 
 ## How to help me
 * It's hard for me to put into words what is my head, don't be afraid to ask me to explain again what I'm trying to say.
+* I tend to avoid asking for help, if it seems like I need help, please offer help, I'll probaply accept.
