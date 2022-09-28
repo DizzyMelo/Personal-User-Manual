@@ -11,13 +11,12 @@
 
 ## When to approach me
 * Definitely the best time to approach me is in the morning when I am not concentrated studying or working.
-* Setting a time in advance to discuss something is ideal.
 * The worst time to approach me is when I am frustrated or trying to solve an important problem, I just have some sort of hyper focus and can't think of nothing else.
 
 ## How best to communicate with me
 * Face to face conversations works best for me.
-* 
-*
+* Setting a time in advance to discuss something is ideal.
+* I tend to avoid phone calls, but video calls are ok.
 
 ## How I make decisions
 * I will try to consider ups and downs of each option and try to find out which fits best
